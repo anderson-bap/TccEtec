@@ -2,7 +2,7 @@
 
 <br>
 
-![Logo](img/logo.png)
+![Logo](https://github.com/anderson-bap/TccEtec/blob/main/bufos%20build/img/logo.png)
 
 <br>
 
