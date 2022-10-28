@@ -40,4 +40,7 @@ Um agradecimento especial que faço é a minha amiga Ana Júlia que foi uma pess
 
 ### Anderson Baptista
 
+- Email - andersonbaptistadesousa@gmail.com
+- [Linkedin](https://www.linkedin.com/in/anderson-baptista-b88752231/)
+
 ### Leandro Nogueira
